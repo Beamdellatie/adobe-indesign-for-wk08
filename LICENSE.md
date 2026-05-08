@@ -1,4 +1,4 @@
-
+Adobe InDesign for macOS automatic Script - cloud sync and batch processing is the best Adobe InDesign for macOS script, featuring cloud sync and batch processing. Safe,
 
 
 
